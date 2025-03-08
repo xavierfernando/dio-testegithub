@@ -1,1 +1,1 @@
-1237 editado no linux
+1247 linux
