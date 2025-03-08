@@ -1,6 +1,1 @@
-
-1218 editado no linux ,,,
-
-
-
-
+1237 editado no linux
